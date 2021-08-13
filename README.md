@@ -1,0 +1,1 @@
+# Dell-Inspiron-14-3543-Hackintosh---Big-Sur
